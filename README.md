@@ -15,4 +15,4 @@ Sdudent at SMK Antartika 1 Sidoarjo
 
 </p>
 
-### Find me around the web :
+### Find me aRround the web :
